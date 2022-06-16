@@ -1,1 +1,1 @@
-I will never give up.
+"Starting to code today,so cool."
